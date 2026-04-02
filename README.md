@@ -87,9 +87,7 @@ Enhanced business understanding of crisis recovery
 
 Special thanks to Codebasics, Dhaval Patel, and the Codebasics Community for this valuable learning opportunity.
 
-📬 Contact
 
-👩‍💻 Vani Punyala 📍 Hyderabad, India 🔗 LinkedIn Profile:www.linkedin.com/in/vani-punyala emial:vanipunyala@gmail.com
 
 🏷️ Tags
 
